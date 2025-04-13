@@ -41,4 +41,7 @@
 
 ![二维码：扫码加入Crypto8848微信社区](https://crypto8848.com/images/qrcode.jpg)
 
+也可以通过 [Telegram](https://t.me/+_Ycuaj_VWGxkYTI1) 加入我们的社区。
+
+
 无论您是数字货币新手还是资深玩家，Crypto8848 都能为您提供便捷、全面的导航服务和免费专业指导，帮助您在加密世界中安全顺利地开启旅程。
